@@ -1,0 +1,1 @@
+# Ger-ncia-de-configura-o-e-mudan-as
